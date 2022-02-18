@@ -1,8 +1,8 @@
+<img src="https://gimg2.baidu.com/image_search/src=http%3A%2F%2Fpic.51yuansu.com%2Fpic3%2Fcover%2F01%2F01%2F22%2F58de585bd5c74_610.jpg&refer=http%3A%2F%2Fpic.51yuansu.com&app=2002&size=f9999,10000&q=a80&n=0&g=0n&fmt=jpeg?sec=1647762674&t=861847c2a7b980969e06fe5fcd4a920c" style="display:block; margin:0 auto;" width="35%">
+
 #### ◼ 给自己制定一个三年奋斗目标。 先存 10万 作为自己的第一桶金。
 
 路上的困难与诱惑，提醒我们不畏艰险，负重前行。一切的一切都是为了过上最好的生活，加油。
-
-<img src="https://gimg2.baidu.com/image_search/src=http%3A%2F%2Fpic.51yuansu.com%2Fpic3%2Fcover%2F01%2F01%2F22%2F58de585bd5c74_610.jpg&refer=http%3A%2F%2Fpic.51yuansu.com&app=2002&size=f9999,10000&q=a80&n=0&g=0n&fmt=jpeg?sec=1647762674&t=861847c2a7b980969e06fe5fcd4a920c" style="display:block; margin:0 auto;" width="50%">
 
 #### ◻ 2022年目标：3.1w
     打工目标：3000 x 10 = 3.000.0元
